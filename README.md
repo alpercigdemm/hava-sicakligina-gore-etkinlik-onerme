@@ -1,0 +1,1 @@
+# hava-sicakligina-gore-etkinlik-onerme
